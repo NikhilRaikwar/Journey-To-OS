@@ -1,6 +1,6 @@
 # Nikhil Raikwar | 👨‍💻 Full Stack Developer
 
-📧 raikwarnikhil80@gmail.com | 📞 8878020322 | 📍 Bhopal, Madhya Pradesh, India
+📧 raikwarnikhil80@gmail.com | 📍 Bhopal, Madhya Pradesh, India
 
 [GitHub](https://github.com/NikhilRaikwar) | [Twitter](https://twitter.com/NikhilRaikwarr) | [Instagram](https://instagram.com/nikhilraikwar_18) | [LinkedIn](https://www.linkedin.com/in/nikhilraikwar16/)
 
